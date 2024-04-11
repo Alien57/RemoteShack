@@ -15,4 +15,4 @@ Wir laden euch herzlich ein, dieses neue Kapitel in unserem Amateurfunkverein mi
 
 Wir freuen uns darauf, mit euch auf der Luft zu sein, egal von wo auf der Welt!
 
-73, HB9DMB, HB9FIO, HB9AJY und HB9GBL
+73 de HB9DMB, HB9FIO, HB9AJY und HB9GBL
